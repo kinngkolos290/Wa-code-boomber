@@ -4,7 +4,7 @@
 
 > Créé par **Supreme Destructor**
 
-![Logo](https://raw.githubusercontent.com/kinngkolos290/Wa-code-boomber/main/logo.png)
+![Logo](https://files.catbox.moe/mqoztv.jpg)
 
 ---
 
